@@ -1,4 +1,4 @@
-# Labyrinth of Jesha
+# The Ancient Labyrinth of Jesha
 🚀 Play Now: [https://popgamedev.itch.io/the-ancient-labyrinth-of-jesha]
 
 ## About the Game
